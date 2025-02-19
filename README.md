@@ -1,0 +1,7 @@
+# 
+Mot de Merde magazine
+
+
+
+
+
